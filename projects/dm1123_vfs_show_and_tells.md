@@ -49,22 +49,21 @@
 
 **Dates for Creator Show and Tells:**  
 
-* Tues, Jan 30
-  * 
-  * 
+- Tuesday, Jan. 30
+    - Sophie Tauber Arp: Alana Beyer & Amira Dhanoa
+    - Peter Saville: Brien Bledsoe & Jeremy Rivera
 
+- Thursday, Feb. 1
+    - David Carson: Val Acero & Sally Zheng
+    - Shepard Fairey: Lola Bruno Dutra & Jill Larson
+    - Josef Muller Brockman: Katherina Localzo & Raeva Sayed
 
-* Thurs, Feb 1  
-  * 
-  * 
+- Tuesday, Feb. 6
+    - Barbara Krueger: Michael Nelson & Jeffrey Qiu
+    - Aleksander Rodchenko: Haixin Tang & Cathy Xu
+    - David Carson: Val Acero & Sally Zheng
 
-
-* Tues, Feb 6
-  * 
-  * 
-
-
-* Thurs, Feb 8
-  * 
-  * 
-  *  
+- Thursday, Feb. 8th
+    - Tibor Kalman: Jessica Gonzalez &
+    - Paula Scher: Ahmed Razin & Chase Newman
+    - Muriel Cooper: Anand Parthiban & Alex Baumann (sorry you two, I switched your assigned Creator because Muriel Cooper is way cooler than Saul Bass)
